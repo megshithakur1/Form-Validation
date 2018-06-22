@@ -10,4 +10,6 @@
 ![My picture](https://github.com/megshithakur1/ITMD-566/blob/master/Project_Assignment_2/3.png)
 
 
+For any queries contact: [Megshi Thakur](https://www.linkedin.com/in/megshithakur/) 
+
 
